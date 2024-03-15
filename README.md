@@ -1,1 +1,3 @@
 # ECSIGHT TECH
+- AOIJAI AI
+- Data Echooo
